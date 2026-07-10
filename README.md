@@ -1,3 +1,3 @@
 Richard Phan
-Currently student at NVCC
+Student at GMU
 CS Major
